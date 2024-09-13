@@ -3,4 +3,4 @@
 - gosto de jogar
 - trabalho em uma pizzaria
 - 
-![](https://tenor.com/pt-BR/view/druski-crunk-gif-14268965195180195769)
+![](https://media1.tenor.com/m/xgWMPqsgv7kAAAAd/druski-crunk.gif)
